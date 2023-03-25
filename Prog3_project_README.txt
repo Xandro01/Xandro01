@@ -1,1 +1,1 @@
-Created by me @Xando01 Scicolone Alessandro, Daniela Magrì and Patric Reineri
+The Prog3 project was made by Scicolone Alessandro, Daniela Magrì and Patric Reineri
